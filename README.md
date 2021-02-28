@@ -1,0 +1,2 @@
+# wallpapercol.com
+wallpapercol.com
